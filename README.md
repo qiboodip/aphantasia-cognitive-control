@@ -1,1 +1,0 @@
-# aphantasia-cognitive-control
